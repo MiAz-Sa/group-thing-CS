@@ -1,1 +1,1 @@
-# group-thing-CS
+# Activity VII
